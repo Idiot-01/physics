@@ -1,1 +1,2 @@
-# idiot01.github.io
+# Physics Homework Discussion Records
+
